@@ -6,4 +6,13 @@
 
   ‎♡‧₊˚˗ˏˋ "18" ˎˊ˗₊‧‎♡
 		 
- ⇘ : : "Ria" has logged out . . ‎♡
+ ⇘ : : check 4 more.. . . ‎♡
+
+<img width="1080" height="90" alt="image" src="https://github.com/user-attachments/assets/ed1ce671-4faf-4027-b705-c6a94f4e4247" /> 
+
+⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
+ ೀ ˖ㅤ۫ㅤbisexual ﹒ gndrfluid ˖ㅤ۫ㅤ♡
+౿ ݁  .    usually offtab    ︵   ｡ Ꮺ ˚
+.⁺　or in party chat  ₊ ˚⊹
+  ࣪   ۫𓂅  w2iuf please  ⟢
+.𖥔 ݁ ˖ e ── .✦
