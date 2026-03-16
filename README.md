@@ -15,6 +15,6 @@
 <br><p align="center">   ࣪   ۫𓂅  w2iuf please  ⟢
 <br><p align="center"> .𖥔 ݁ ˖ e ── . ✦
 <br><p align="center"> <img width="113" height="69" alt="image" src="https://github.com/user-attachments/assets/0c4e3578-3cc3-4518-9f0d-68853b2f246a" />
-<br><p align="center">_ _      ! C+h ok! ˊ ˎ -
-<br><p align="center">_ _ e ,, ily oomfs ✩ **<** shadouge **3** — int / dni
-<br><p align="center">_ _ ✧ ‘‘ *on straw* ‚‚ /ᐠ ˵> ⩊ <˵マ
+<br><p align="left">_ _      ! C+h ok! ˊ ˎ -
+<br><p align="left">_ _ e ,, ily oomfs ✩ **<** shadouge **3** — int / dni
+<br><p align="left">_ _ ✧ ‘‘ *on straw* ‚‚ /ᐠ ˵> ⩊ <˵マ
