@@ -1,3 +1,7 @@
+
+<br><p align="center"> <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/110df660-d0c9-4736-b750-1aebc39ba88d" />
+
+
 <br><p align="center">  <img width="500" height="7" alt="image" src="https://github.com/user-attachments/assets/dfd42b3f-c9c0-4f15-9391-5a819acceadd" /> 
 
  <br><p align="center"> ₍ ᶻᶻᶻ ["Ria.."] is typing ... ₎
