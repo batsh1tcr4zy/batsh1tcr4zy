@@ -18,7 +18,9 @@
 <br><p align="right"> .⁺　or in party chat  ₊ ˚⊹
 <br><p align="right">   ࣪   ۫𓂅  w2iuf please  ⟢
 <br><p align="right"> .𖥔 ݁ ˖ e ── . ✦
-<br><p align="center"> <img width="113" height="69" alt="image" src="https://github.com/user-attachments/assets/0c4e3578-3cc3-4518-9f0d-68853b2f246a" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5c2c6501-5c7d-4b96-9928-697244a64d00" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/61051f60-7622-40a8-a3d9-84c98d631647" /> <img width="104" height="65" alt="image" src="https://github.com/user-attachments/assets/f71f748a-3bc0-47f7-87b6-0fc1c3bc9e21" />
+<br><p align="center"> <img width="113" height="69" alt="image" src="https://github.com/user-attachments/assets/0c4e3578-3cc3-4518-9f0d-68853b2f246a" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5c2c6501-5c7d-4b96-9928-697244a64d00" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/61051f60-7622-40a8-a3d9-84c98d631647" /> <img width="104" height="65" alt="image" src="https://github.com/user-attachments/assets/f71f748a-3bc0-47f7-87b6-0fc1c3bc9e21" /> <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/1df7eb38-0211-4843-9f64-6a9767f9960f" /> <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/9b8985fd-26fb-46c3-b140-7b36e138419b" /> 
+
+
 
 
 
