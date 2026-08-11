@@ -7,7 +7,7 @@
 <br><p align="center">  <img width="500"  src="https://github.com/user-attachments/assets/dfd42b3f-c9c0-4f15-9391-5a819acceadd" /> 
 
  <br><p align="center"> ₍ ᶻᶻᶻ ["Ria.."] is typing ... ₎
-<br><p align="center"> ˚ ༘♡ ·˚꒰"she /xe / it"꒱ ₊˚ˑ༄
+<br><p align="center"> ˚ ༘♡ ·˚꒰"she /him"꒱ ₊˚ˑ༄
  <br><p align="center">  ‎♡‧₊˚˗ˏˋ "18" ˎˊ˗₊‧‎♡
 <br><p align="center">  ⇘ : : check 4 more.. . . ‎♡
 <br><p align="center"> <img width="304"  src="https://github.com/user-attachments/assets/0d288a57-c536-454e-a29f-1c0df157d912" />
@@ -15,7 +15,7 @@
 <br><p align="center"> <img width="1080"  src="https://github.com/user-attachments/assets/ed1ce671-4faf-4027-b705-c6a94f4e4247" />  ![rouge-the-bat-sonic-battle](https://github.com/user-attachments/assets/fef4ffe1-ddb8-41d2-ab64-266dd6a39bbd)
 
 <br><p align="right"> ⊹　 ︶︶　 ୨୧　 ︶︶　 ✦
-<br><p align="right">  ೀ ˖ㅤ۫ㅤbisexual ﹒ gndrfluid ˖ㅤ۫ㅤ♡
+<br><p align="right">  ೀ ˖ㅤ۫ㅤLithromantic + Omnnisexual ﹒ bigender ˖ㅤ۫ㅤ♡
 <br><p align="right"> ౿ ݁  .    usually offtab    ︵   ｡ Ꮺ ˚
 <br><p align="right"> .⁺　or in party chat  ₊ ˚⊹
 <br><p align="right">   ࣪   ۫𓂅  w2iuf please  ⟢
