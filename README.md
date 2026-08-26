@@ -1,8 +1,8 @@
-
+<br><p align="center"> Wip . . . . .
 <br><p align="center"> <img width="736" src="https://github.com/user-attachments/assets/110df660-d0c9-4736-b750-1aebc39ba88d" />
-<br><p align="center"> .𖥔 ݁ ˖ ''At the tower of memories?.''.𖥔 ݁ ˖ 
+<br><p align="center"> .𖥔 ݁ ˖ ''Know that I'll always be by your side. Remember that.''.𖥔 ݁ ˖ 
 
-<br><p align="left">.𖥔 ݁ ˖ -# art not mine..
+<br><p align="left">.𖥔 ݁ ˖ -# art not mine
 
 <br><p align="center">  <img width="500"  src="https://github.com/user-attachments/assets/dfd42b3f-c9c0-4f15-9391-5a819acceadd" /> 
 
